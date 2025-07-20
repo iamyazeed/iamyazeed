@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web devoloping
 - 🌱 I’m currently learning JavaScript
 - 💞️ I’m looking to collaborate on Several industry devolpers
-- 📫 You can reach me through mail or instagram-@iyaze.d & yazumon99@gmail.com
+- 📫 You can reach me through mail ►yazumon99@gmail.com or instagram ►@iyaze.d 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: GVQ.
 
